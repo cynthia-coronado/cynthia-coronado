@@ -1,16 +1,17 @@
-### Hi there 👋
+Hello!🌻
 
-<!--
-**cynthia-coronado/cynthia-coronado** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🌻 - Thanks for taking the time to browse my GitHub! I'm coming to the end of Bloom Institute of Technology and I'm exctied to jump into my first web development job. I'm always looking to connect and make new friends. Reach out and say hi! 
 
-Here are some ideas to get you started:
+🪴 - I’m currently learning Computer Science at Bloom Tech. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🥂 - I would love to collaborate in the future! Currently life if FULL.  
+
+❔ - I’m always looking to learn more. All feedback is welcome! 
+
+💬 - Ask me about whats new in my life! I have alot going on and there is always something going on!
+
+📫 - You can reach me via email at cynthia.softball12@gmail.com
+
+😄 - Pronouns are she/her
+
+🐾 - A fun fact about me is that I'm a dog mom of a German Shepherd named Ophelia. 
